@@ -21,5 +21,5 @@
 ![](https://archive.6k2ldk.xyz/hate/20241019-trans-x/3.jpg)<br>
 
 ------------------
-만든이: https://6k2ldk.xyz <br>
-제보: https://6k2ldk.xyz/#contacts
+만든이: [https://6k2ldk.xyz](https://6k2ldk.xyz) <br>
+제보: [https://6k2ldk.xyz/#contacts](https://6k2ldk.xyz/#contacts)
