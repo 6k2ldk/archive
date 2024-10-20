@@ -4,3 +4,8 @@
 
 
 # [확인 / Confirm](https://archive.6k2ldk.xyz/hate)<br>[메인 사이트로 돌아가기 / Back to main](https://6k2ldk.xyz/)
+
+
+------------------
+만든이: https://6k2ldk.xyz <br>
+제보: https://6k2ldk.xyz/#contacts
