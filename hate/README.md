@@ -5,12 +5,15 @@
 [후원 안내](https://archive.6k2ldk.xyz/anc/donate)<br>
 [활동가 모집](https://archive.6k2ldk.xyz/anc/activist-mozip)
 ## 아카이빙 목록
-### [트랜스](https://archive.6k2ldk.xyz/hate/#트랜스)
+### [트랜스](https://archive.6k2ldk.xyz/hate/#트랜스) / [퀴어](https://archive.6k2ldk.xyz/hate/#퀴어) / [여성](https://archive.6k2ldk.xyz/hate/#여성) / [장애](https://archive.6k2ldk.xyz/hate/#장애) / [청소년](https://archive.6k2ldk.xyz/hate/#청소년)
 ### 트랜스
 [2024-0001 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/2024-0001-trans-x)<br>
 [20240907 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20240907-trans-x)<br>
 [20241019 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20241019-trans-x)
-
+### 퀴어
+### 여성
+### 장애
+### 청소년
 ------------------
 만든이: 이규언 [https://6k2ldk.xyz](https://6k2ldk.xyz) <br>
 제보: [https://archive.6k2ldk.xyz/anc/jebo](https://archive.6k2ldk.xyz/anc/jebo)
