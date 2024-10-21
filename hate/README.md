@@ -3,7 +3,7 @@
 ## 공지
 [제보 안내](https://archive.6k2ldk.xyz/anc/jebo)<br>
 [후원 안내](https://archive.6k2ldk.xyz/anc/donate)<br>
-[활동가 모집](https://archive.6k2ldk.xyz/anc/activist-mozip)<
+[활동가 모집](https://archive.6k2ldk.xyz/anc/activist-mozip)
 ## 아카이빙 목록
 [20240907 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20240907-trans-x)<br>
 [20241019 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20241019-trans-x)
