@@ -9,7 +9,8 @@
 ### 트랜스
 [2024-0001 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/2024-0001-trans-x)<br>
 [20240907 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20240907-trans-x)<br>
-[20241019 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20241019-trans-x)
+[20241019 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20241019-trans-x)<br>
+[20200206 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20200206-trans-x)
 ### 퀴어
 ### 여성
 ### 장애
