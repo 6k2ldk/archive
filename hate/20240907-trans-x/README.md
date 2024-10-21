@@ -9,4 +9,4 @@
 
 ------------------
 만든이: 이규언 [https://6k2ldk.xyz](https://6k2ldk.xyz) <br>
-제보 및 협업 문의: [https://archive.6k2ldk.xyz/anc/jebo](https://archive.6k2ldk.xyz/anc/jebo)
+제보: [https://archive.6k2ldk.xyz/anc/jebo](https://archive.6k2ldk.xyz/anc/jebo)
