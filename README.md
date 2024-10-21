@@ -1,5 +1,7 @@
 <html>
+  <head>
   <title>혐오아카이브</title>
+  </head>
 </html>
 
 ## 경고 / Warning
