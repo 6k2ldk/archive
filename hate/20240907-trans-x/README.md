@@ -8,5 +8,5 @@
 ![](https://archive.6k2ldk.xyz/hate/20240907-trans-x/1.jpg)
 
 ------------------
-만든이: [https://6k2ldk.xyz](https://6k2ldk.xyz) <br>
-제보: [https://6k2ldk.xyz/#contacts](https://6k2ldk.xyz/#contacts)
+만든이: 이규언 [https://6k2ldk.xyz](https://6k2ldk.xyz) <br>
+제보 및 협업 문의: [https://6k2ldk.xyz/#contacts](https://6k2ldk.xyz/#contacts)
