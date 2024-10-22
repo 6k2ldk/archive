@@ -5,6 +5,8 @@
 ### 링크: https://x.com/_u____nn/status/1846843002112954483?t=zWKQWKIbdyuwjAwFsfrNgg&s=19
 
 
+- 야 내가씨발 세상에역병을퍼뜨리는 게이똥꼬충새끼들 즐락을 4년애걸쳐서 해왔는데 그걸 다 무로되돌려놓겠다고? 일론씨발련이
+  
 ![](https://archive.6k2ldk.xyz/hate/20241017-queer-x/1.jpg)
 
 ------------------
