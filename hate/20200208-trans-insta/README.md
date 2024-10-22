@@ -34,8 +34,8 @@
 숙명여자대학교 법과대학 래디컬페미니스트 모임 不法霸徾團
  숙명여자대학교 FEMI-POWER PROJECT
 
-![](https://archive.6k2ldk.xyz/hate/20200208-trans-insta/1.jpg)
-![](https://archive.6k2ldk.xyz/hate/20200208-trans-insta/2.jpg)
+![](https://archive.6k2ldk.xyz/hate/20200208-trans-insta/1.png)
+![](https://archive.6k2ldk.xyz/hate/20200208-trans-insta/2.png)
 
 ------------------
 만든이: 이규언 [https://6k2ldk.xyz](https://6k2ldk.xyz) <br>
