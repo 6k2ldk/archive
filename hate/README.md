@@ -12,6 +12,7 @@
 [20241019 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20241019-trans-x)<br>
 [20200206 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20200206-trans-x)
 ### 퀴어
+[20241017 퀴어혐오-X](https://archive.6k2ldk.xyz/hate/20241017-queer-x)
 ### 여성
 ### 장애
 ### 청소년
