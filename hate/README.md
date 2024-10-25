@@ -11,7 +11,7 @@
 [20240907 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20240907-trans-x)<br>
 [20241019 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20241019-trans-x)<br>
 [20200206 트랜스혐오-X](https://archive.6k2ldk.xyz/hate/20200206-trans-x)<br>
-[20241025 트랜스혐오-카오톡](https://archive.6k2ldk.xyz/hate/20241025-trans-kakaotalk)
+[20241025 트랜스혐오-카카오톡](https://archive.6k2ldk.xyz/hate/20241025-trans-kakaotalk)
 ### 퀴어
 [20241017 퀴어혐오-X](https://archive.6k2ldk.xyz/hate/20241017-queer-x)
 ### 여성
