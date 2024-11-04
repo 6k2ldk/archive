@@ -2,7 +2,7 @@
 ### 언제: 2020년 2월 8일
 ### 어디서: 인스타그램
 ### 누가: 무소의 뿔(@swuradfem)
-### 링크: https://https://www.instagram.com/p/B8aFYyZFY7f/?igsh=MWhsc3NvNDdyam43MQ==
+### 링크: https://www.instagram.com/p/B8aFYyZFY7f/?igsh=MWhsc3NvNDdyam43MQ==
 
 <여자대학교 래디컬 페미니스트 모임 총동맹 연합 대자보>
 
